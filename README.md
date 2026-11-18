@@ -4,7 +4,7 @@
 
 Information, not legal advice.
 
-**Demo video:** _[LinkedIn link]_
+**Demo video:** https://www.linkedin.com/feed/update/urn:li:activity:7528638453937364992/
 
 ---
 
